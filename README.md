@@ -2,6 +2,6 @@
 
 https://stalicites.tech
 
-Discord: qa#1337
-
+Discord: qa#5900
 Roblox: Stalicites
+i am happy
